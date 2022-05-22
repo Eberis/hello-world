@@ -1,2 +1,4 @@
 # hello-world
-hi . hello-world.io sheep farmer request comm. directory reply 74 's my favorite . :o) . Hello Druid 2
+Hello, Druid Hello, Bryan
+minor update Hello, Bryan Ev
+Peace on Earth 01 decode3o2*
